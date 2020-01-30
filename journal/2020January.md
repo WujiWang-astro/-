@@ -12,3 +12,8 @@
 * I seat today.
 * A young man seats on the row facing me stares at me for a while
 * Not seeing any other wear mask
+
+**Jan. 30th 2020**
+* Same protection as yesterday
+* I get on the S-bahn at around 7:05
+* Not seeing anyone wearing mask
