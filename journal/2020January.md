@@ -17,3 +17,10 @@
 * Same protection as yesterday
 * I get on the S-bahn at around 7:05
 * Not seeing anyone wearing mask
+
+**Jan. 31st 2020**
+* Same protection as yesterday
+* See two Asian women wearing mask at Marienplatz
+* See a travel group maybe Korean don't wear any mask. Two do, but just hang on the chin
+* I seat when I get on the U6
+* The woman seats infront of me just moves far from me by the door
