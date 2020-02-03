@@ -24,3 +24,8 @@
 * See a travel group maybe Korean don't wear any mask. Two do, but just hang on the chin
 * I seat when I get on the U6
 * The woman seats infront of me just moves far from me by the door
+* On my way back, same wearing, nobody seats infornt of me
+
+**Feb. 3rd 2020**
+* I just wear the mask today and get on the Ubahn at around 9:40
+* See another girl probably Chinese wears mask on the Ubahn  
