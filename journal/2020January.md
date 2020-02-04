@@ -29,3 +29,6 @@
 **Feb. 3rd 2020**
 * I just wear the mask today and get on the Ubahn at around 9:40
 * See another girl probably Chinese wears mask on the Ubahn  
+
+**Feb. 4th 2020**
+* Just mask today, nothing important to stress out
