@@ -32,3 +32,13 @@
 
 **Feb. 4th 2020**
 * Just mask today, nothing important to stress out
+
+**Feb. 5th 2020**
+* Just mask
+* No body cares that much
+* Several Chinese people wear mask on my way back
+
+**Feb. 6th 2020**
+* Just mask
+* No body cares, maybe one or two staring at me for a short time
+* Two elder people wear mask at RosenheimerPlatz
