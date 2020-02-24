@@ -42,3 +42,8 @@
 * Just mask
 * No body cares, maybe one or two staring at me for a short time
 * Two elder people wear mask at RosenheimerPlatz
+
+**Feb. 24th 2020**
+* Mask today
+* Not pay much attention
+* Not crowded on the U-bahn at 7:30
