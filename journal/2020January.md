@@ -52,4 +52,4 @@
 * Mask today
 * 28 new cases identified yesterday
 * Some staring 
-* xxx的德国人
+
