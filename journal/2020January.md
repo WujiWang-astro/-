@@ -47,3 +47,9 @@
 * Mask today
 * Not pay much attention
 * Not crowded on the U-bahn at 7:30
+
+**Feb. 28th 2020**
+* Mask today
+* 28 new cases identified yesterday
+* Some staring 
+* xxx的德国人
