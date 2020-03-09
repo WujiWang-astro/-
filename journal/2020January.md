@@ -53,3 +53,7 @@
 * 28 new cases identified yesterday
 * Some staring 
 
+**Mar. 9th 2020**
+* Mask today
+* over 1050 in Germany right now
+* Nobody wears it and doesn't care
