@@ -62,5 +62,4 @@
 * more than 6000 cases today, first day that all schools are shut down; restaurants, pubs and etc. in Bayern will be closed since tomorrwo
 * Went to supermarket this morning at around 9am, lots of people, less vegetables, no toilet paper
 * Every cashier wearing gloves, some German and Asina wear masks
-
-* 
+* ESO DG recommand everyone who can should work at home
