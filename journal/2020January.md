@@ -57,3 +57,10 @@
 * Mask today
 * over 1050 in Germany right now
 * Nobody wears it and doesn't care
+
+**Mar. 16th 2020**
+* more than 6000 cases today, first day that all schools are shut down; restaurants, pubs and etc. in Bayern will be closed since tomorrwo
+* Went to supermarket this morning at around 9am, lots of people, less vegetables, no toilet paper
+* Every cashier wearing gloves, some German and Asina wear masks
+
+* 
